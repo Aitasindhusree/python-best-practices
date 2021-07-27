@@ -114,7 +114,7 @@ Shi-Ning Sun |
 Shiyin Jiao |
 Shuqiong Zhao |
 Simin Jin |
-Sindhusree Aita |
+Sindhusree Aita | Believe in your infinite potential. Your only limitations are those you set upon yourself
 Susan Paykin |
 Tanvi Gandhi |
 Tao Feng |
